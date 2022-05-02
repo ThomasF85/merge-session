@@ -1,1 +1,1 @@
-// coming soon
+// Content coming soon
